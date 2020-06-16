@@ -1,5 +1,5 @@
 # XiaRiXinZhuang
-If you have any suggestions and comments on the "XiaRiXinZhuang" App, 
+If you have any suggestions and comments on the "XiaRiFen" App, 
 
 please contact me through the following methods.
 
